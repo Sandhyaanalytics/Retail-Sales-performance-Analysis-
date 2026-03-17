@@ -62,13 +62,6 @@ Business Recommendations
 - Address declining sales trends by introducing mid-month campaigns or promotions
 
 ---
-Dashboard Preview :-
-
-
-
-
-Insights:-
-
 
 
 
